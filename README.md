@@ -3,6 +3,7 @@
 To use this you must have the bacon hair set on!
 
 Links to avatar parts:
+
   Pal Hair: https://www.roblox.com/catalog/63690008
   
   Smile: https://www.roblox.com/catalog/144075659
